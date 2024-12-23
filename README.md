@@ -5,7 +5,7 @@
 - 💞️ BUT I’m looking to collaborate on Job roles (remote job || Internships)  for frontend web-developer React.js
 - 📫 CONTACT ME : +91 8850804863 | riteshnishadofficial66@gmail.com | linkedIn : www.linkedin.com/in/riteshnishad-web-developer
 - 😄 Pronouns: HE/HIS/HIM
-- ✨ HOBBIES : playing Basketball 🏀 | Outdoor Painting and sketching 🎨
+- ✨ HOBBIES : playing Basketball 🏀 | Outdoor Painting and sketching 🎨 | Sometimes cooking too :)
 
 <!---
 ritesh-web-dev/ritesh-web-dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
